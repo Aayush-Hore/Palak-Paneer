@@ -1,1 +1,1 @@
-This is the recipe of Palak Paneer.s
+This is the recipe of Palak Paneer.
